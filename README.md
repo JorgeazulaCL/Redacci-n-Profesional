@@ -1,2 +1,6 @@
-# Redacci-n-Profesional
-A continuación se adjunta un extracto de redacción para empresas interesadas en contratar servicios de redacción/escritura en Español nativo. 
+# Redacci-n Profesional
+A continuación se adjunta un extracto de redacción para empresas interesadas en contratar servicios de redacción/escritura en Español nativo.
+EJEMPLO 1º :Tenemos bastante que agradecerle al sol, puesto que aparte de haber sido nuestra fuente de vida, de calor, símbolo de adoración, divinidad, constructor, y destructor, también nos aporta una fuente de energía inagotable de manera diaria y en el momento que aprendimos a aprovecharla, su recorrido ha sido cada vez más exitoso a la par de necesario para trasladar la peligrosa huella de carbono a un segundo plano.
+EJEMPLO 2º :La empresa estadounidense Boston Dynamics es y sigue siendo a día de hoy, la referencia más clara de la innovación robótica desde la esfera «civil» a nivel mundial. Se podría decir que ha sido una de las empresas que ha marcado los cimientos de las primeros robots útiles para la labores profesionales con eficiencia garantizada. Dichas actividades se centran en labores de vigilancia, análisis visual, manipulación y transporte de materiales, etc,
+Uno de sus mayores logros es Atlas: 
+En este vídeo podemos ver como es capaz de bailar imitando los movimientos del ser humano de forma «cada vez menos mecánica» podría decirse, demostrando ser el mejor modelo de robot «humano» más logrado hasta la fecha. Actualmente sigue en constante actualización y mejora de sus capacidades.
